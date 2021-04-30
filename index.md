@@ -1,1 +1,1 @@
-## Welcome to the idealistcs band site
+## Welcome to the Idealistcs band site
